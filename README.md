@@ -25,8 +25,11 @@ The lactic acid lowers the pH of the food, creating an environment that prevents
 
 ## Conclusion
 Lactofermentation is a sustainable and traditional technique that combines food preservation and health benefits in one natural process.
+##
+_https://pin.it/2QcdSrR9M
+_ https://pin.it/3A3AtaJFX
 
-Collaborators:
+##Collaborators:
 -Ben yahia khadidja 
 _El ghribi Marwa 
 _Ben zekkour Safa
